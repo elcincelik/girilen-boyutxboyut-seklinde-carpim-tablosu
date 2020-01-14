@@ -1,0 +1,1 @@
+# girilen-boyutxboyut-seklinde-carpim-tablosu
